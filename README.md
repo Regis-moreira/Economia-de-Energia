@@ -1,0 +1,1 @@
+Uma balança digital flutuando entre uma lâmpada acesa e um medidor de energia, com moedas caindo ao lado do medidor, simbolizando economia financeira. Fundo azul-escuro com partículas de luz sugerindo modernidade e tecnologia."
